@@ -1,4 +1,4 @@
-![](https://lh6.googleusercontent.com/X6oOme2LltwAWHYXXhOD_-Ghm2MVYklyNNXfn1u5iKgO1otHIJicZhNplLasCRi83D-pPMFtIxB-MTjC86MCtly45nn4ZtlroqUDjEMNo9ch6RwD8e1Z92mJ75zhg5nXOEPdGdShP3uXAYQB0A)
+![](/images/pan%20logo.png)
 
 ![](https://lh4.googleusercontent.com/Fs7lRwjN44Y65LvcBAUJeKT0Fcn3hUf5dquMEiBba8eHLdq4csdCcTvFKJmc9ZRQDohRlGkPa3j9lJc-wwSFqoAELUD9OHn5a8sMgoP3aEoRTBQlVnE9PzWl0E2PmGGBEgoH_0tciKxWCU9HzQ)
 
